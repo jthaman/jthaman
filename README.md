@@ -1,6 +1,11 @@
 ### Hi there 👋
 
-![](https://randomeffect.net/post/2020/12/09/lasso-variable-selection-performance/index_files/figure-html/unnamed-chunk-5-1.png)
+![](https://web.archive.org/web/20090829171122im_/http://geocities.com/EnchantedForest/Cottage/9339/hello1.gif)
+![](https://web.archive.org/web/20090829203537im_/http://geocities.com/~robink/anihello.gif)
+![](https://web.archive.org/web/20090829192142im_/http://www.geocities.com/vis3_2003/welcome1.gif)
+![](https://web.archive.org/web/20090727212910im_/http://ar.geocities.com/santilandia2_com/welcome1.gif)
+![](https://web.archive.org/web/20091024094134im_/http://www.geocities.com/liquordepot1/welcome13d.gif)
+![](https://web.archive.org/web/20090821200606im_/http://geocities.com/SoHo/Atrium/3987/Hello.gif)
 
 
 <!--
