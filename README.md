@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+![](https://randomeffect.net/post/2020/12/09/lasso-variable-selection-performance/index_files/figure-html/unnamed-chunk-5-1.png)
+
+
 <!--
 **jthaman/jthaman** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
