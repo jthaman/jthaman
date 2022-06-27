@@ -10,6 +10,8 @@
 ![](https://web.archive.org/web/20090809090723/http://www.geocities.com/johnmaierperrycountyindiana/FlagUSWavePole.gif)
 ![](https://web.archive.org/web/20090809090723/http://www.geocities.com/johnmaierperrycountyindiana/FlagUSWavePole.gif)
 ![](https://web.archive.org/web/20090809090723/http://www.geocities.com/johnmaierperrycountyindiana/FlagUSWavePole.gif)
+![](https://web.archive.org/web/20090809090723/http://www.geocities.com/johnmaierperrycountyindiana/FlagUSWavePole.gif)
+![](https://web.archive.org/web/20090809090723/http://www.geocities.com/johnmaierperrycountyindiana/FlagUSWavePole.gif)
 ![](https://web.archive.org/web/20090829171122im_/http://geocities.com/EnchantedForest/Cottage/9339/hello1.gif)
 ![](https://web.archive.org/web/20090829203537im_/http://geocities.com/~robink/anihello.gif)
 ![](https://web.archive.org/web/20090829192142im_/http://www.geocities.com/vis3_2003/welcome1.gif)
