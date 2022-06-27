@@ -8,6 +8,7 @@
 ![](https://web.archive.org/web/20090821200606im_/http://geocities.com/SoHo/Atrium/3987/Hello.gif)
 ![](https://web.archive.org/web/20091026135109im_/http://uk.geocities.com/pentecostaluk/bearhello.gif)
 ![](https://web.archive.org/web/20090829143431im_/http://geocities.com/hellomisty/dove5.gif)
+![](https://web.archive.org/web/20091026140310im_/http://geocities.com/jerseygalhello/ladyclap.gif)
 ![](https://web.archive.org/web/20090803061455im_/http://www.geocities.com/Heartland/Ridge/9769/Helloandwelcome.gif)
 ![](https://web.archive.org/web/20090829203353im_/http://geocities.com/Athens/Sparta/5915/hello.gif)
 ![](https://web.archive.org/web/20090829200230im_/http://geocities.com/Athens/Sparta/5915/bar_bulbs.gif)
