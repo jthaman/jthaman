@@ -1,6 +1,4 @@
-### Shrimp love me.
 
-### Unaligned AI fear me.
 
 <!-- ![](https://web.archive.org/web/20091018235734/http://www.geocities.com/johnv56/flameline.gif) -->
 <!-- ![](https://web.archive.org/web/20090809090723/http://www.geocities.com/johnmaierperrycountyindiana/FlagUSWavePole.gif) -->
