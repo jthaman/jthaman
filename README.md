@@ -1,4 +1,6 @@
-### Hi there 👋
+### Shrimp love me.
+
+### Unaligned AI fear me.
 
 <!-- ![](https://web.archive.org/web/20091018235734/http://www.geocities.com/johnv56/flameline.gif) -->
 <!-- ![](https://web.archive.org/web/20090809090723/http://www.geocities.com/johnmaierperrycountyindiana/FlagUSWavePole.gif) -->
@@ -25,10 +27,6 @@
 <!-- ![](https://web.archive.org/web/20090829200230im_/http://geocities.com/Athens/Sparta/5915/bar_bulbs.gif) -->
 
 
-<!--
-**jthaman/jthaman** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
